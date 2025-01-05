@@ -18,7 +18,7 @@ https://drive.google.com/file/d/1UFuJqvX7jQH-Glzo2zXUMpjGqMpBvzyh/view?usp=shari
 
 **ONE PEAK**은 '누군가와 소통하고 함께 성장하는 최고의 정점을 향해 나아가자'는 의미를 담아,
 
-‘Someone to speak'와 산봉우리 peak를 결합해 탄생한 이름입니다.
+‘Someone to speak'와 Peak(정점) 결합해 탄생한 이름입니다.
 
 저희와 함께 **챗봇, 화상 통화** 그리고 **퀴즈**를 풀며 외국어 공부하러 가볼까요? 🏃‍♂️💨
 
