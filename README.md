@@ -3,9 +3,10 @@
 
 <br>
 
-
 ![인트로](https://github.com/user-attachments/assets/d6091c81-ee7f-4fd6-91c8-114c585f3cd4)
 
+시연영상
+https://drive.google.com/file/d/1UFuJqvX7jQH-Glzo2zXUMpjGqMpBvzyh/view?usp=sharing
 
 </div>
 
